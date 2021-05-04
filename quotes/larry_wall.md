@@ -1,1 +1,1 @@
-da;lskd;alskd;lkas;ldkal;k
+But I'm not here to talk about postmodernism. I tried to do that last spring, and afterwards I was thoroughly deconstructed by the deconstructionists for attempting to deconstruct deconstructionism. At least, that's the construction I put on their construction of it. I was talking about postmodern culture, and they thought I was talking about postmodern literature. Not at all the same thing!
