@@ -1,1 +1,1 @@
-Comprehensiveness is the enemy of comprehensibility
+Comprehensiveness is the enemy of comprehensibility.
