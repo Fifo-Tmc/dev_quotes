@@ -17,3 +17,4 @@ Larry Wall
 Linus Torvalds
 Martin Fowler
 Michael Jordan
+Bjarne Stroustrup
